@@ -11,7 +11,7 @@ Contact with me to get the Password of Zip file on :
  
  Email : manifesto.blackhathackingteam@gmail.com
  
-  ## Show on Youtube : https://youtu.be/m7gHlGCrMZs
+  ## Show on Youtube : In recording...
  
 ## • Our Channels : 
 
