@@ -1,4 +1,6 @@
 # Telegram-Bulk-Message-Sender-V2
+LATEST VERSION : https://github.com/erfan4lx/Telegram-Mass-DM-Sender/
+
 The best Windows gui tool to send bulk message to your Telegram destination group members by multiple Telegram accounts V2
 
  MY OFFICIAL WEBSITE : https://erfan4lx.com
