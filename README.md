@@ -7,7 +7,7 @@ The best Windows gui tool to send bulk message to your Telegram destination grou
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx3
+ Telegram : https://t.me/erfan4lx5
   
  Email : erfan4lx@gmail.com
   
@@ -17,7 +17,7 @@ Show demo video on Instagram : https://www.instagram.com/p/CMQOAL_AawK
 
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/erfan4lx_team
+🆔My Telegram Channel : https://t.me/erfan4lx_company
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
